@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **moham1255@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1fxyyZ2oLHwRGo5FCK-7Dvauxa3d-KFMNSLPc4C-ggks/edit](https://docs.google.com/document/d/1fxyyZ2oLHwRGo5FCK-7Dvauxa3d-KFMNSLPc4C-ggks/edit)
+- 📄 Know about my experiences [: Check out my recent projects or connect with me on LinkedIn!](: Check out my recent projects or connect with me on LinkedIn!)
 
 - ⚡ Fun fact **I enjoy playing tennis on my days off**
 
